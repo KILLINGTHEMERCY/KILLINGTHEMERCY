@@ -15,4 +15,4 @@ https://github.com/user-attachments/assets/370a7bb9-3096-4c7f-bf57-dd4d0eaf5016
 
 
 
-how do i people make intros ,,,,,
+how do people make intros ,,,,,
